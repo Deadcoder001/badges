@@ -1,5 +1,1 @@
-nknknkn
-gnghngh# badges
-kbdkfb
-bb
-g bgbg bg
+getting the pull shark bedge 2x
